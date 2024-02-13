@@ -1,4 +1,4 @@
-# Elemnetor-Pro
+# Elementor Pro
 
 ✅ Annual validity & updates
 ✅ Quick Support
